@@ -1,0 +1,2 @@
+You may pan fry the paneer cubes as well. Heat few tablespoons of oil in a pan and pan fry paneer until golden-brown from both sides.
+To make this recipe gluten-free, use rice flour in place of all purpose flour. Also use tamari (gluten-free soy sauce) in place of regular soy sauce.
