@@ -3,4 +3,5 @@ chilli paneer recipe
 
 by Prabbhsharan singh
 
-Link: 
+Link: https://prabbhsharan.github.io/Chillipaneer/.
+&     https://github.com/Prabbhsharan/Chillipaneer 
